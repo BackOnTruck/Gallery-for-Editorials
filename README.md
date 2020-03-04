@@ -1,2 +1,2 @@
-# I-I_I-I Suck
-Readme file for I-I_I-I's sucky and dubious "Gallery". Written in his favorite dumb markdown format.
+# X Suck
+Readme file for X's sucky and dubious Puul request. Written in his disgraced markdown format.
